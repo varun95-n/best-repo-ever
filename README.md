@@ -1,2 +1,2 @@
 # best-repo-ever
-i love lanjalu
+i love my self
